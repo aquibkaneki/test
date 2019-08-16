@@ -1,4 +1,4 @@
-# TEST
+# UNIVERSITY OF MUMBAI
 The University of Mumbai (known earlier as University of Bombay) is one of the
 oldest and premier Universities in India. It was established in 1857 consequent upon 
 "Wood's Education Dispatch", and it is one amongst the first three Universities in India.
